@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @LordArma
+- 👋 Hi, I’m Alireza Ahmadi (Arma)
 - 👀 I’m interested in Gilaki culture.
 
 <!---
